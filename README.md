@@ -65,5 +65,19 @@ For questions or freelance inquiries:
 📧 [your-email@example.com]  
 🔗 GitHub: [github.com/Mustafa475-cyberkkr](https://github.com/Mustafa475-cyberkkr)
 
----
+![‏‏لقطة الشاشة (16)](https://github.com/user-attachments/assets/4a1f84d8-66c3-4c78-aae3-deed14f8c227)
+
+
+![‏‏لقطة الشاشة (15)](https://github.com/user-attachments/assets/57ed14b1-6ed2-430b-b083-507143eae765)
+
+
+
+![‏‏لقطة الشاشة (14)](https://github.com/user-attachments/assets/9a32b715-68f1-4b1c-99cc-d3bbfb70d59c)
+
+
+![‏‏لقطة الشاشة (13)](https://github.com/user-attachments/assets/6652d627-e5f6-4dbc-9890-567c3c750722)
+
+![image](https://github.com/user-attachments/assets/b2ac8187-8c1a-47e7-a46d-e6616bc2b277)
+
+
 
