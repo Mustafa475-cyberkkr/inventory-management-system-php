@@ -62,7 +62,7 @@ This system helps businesses and shops to track product stock, manage categories
 ## 📬 Contact
 
 For questions or freelance inquiries:  
-📧 [your-email@example.com]  
+📧 [+967772357697]  
 🔗 GitHub: [github.com/Mustafa475-cyberkkr](https://github.com/Mustafa475-cyberkkr)
 
 ![‏‏لقطة الشاشة (16)](https://github.com/user-attachments/assets/4a1f84d8-66c3-4c78-aae3-deed14f8c227)
